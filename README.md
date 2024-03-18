@@ -2,7 +2,7 @@
  =========================== **♡** ===========================
 - **☆** please feel free to cuds or interact with me, I don't *bite*.
 - **☆** refrain from copying ponies, if take inspiration please ask for consent (**If I turn it down then no is a** ___no___)
--- >`` read my carrd ! for more baes ``
+- `` read my carrd ! :shipit: ``
  <!--
 **zcsaix/zcsaix** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
