@@ -1,5 +1,8 @@
-### Hi there 👋
-
+> This github is specifically made for ponytown >_<
+========================================================== **♡** ==========================================================
+**☆** please feel free to cuds or interact with me, I don't *bite*.
+**☆** refrain from copying ponies, if take inspiration please ask for consent (**If I turn it down then no is a** ___no___)
+**☆** **♡** **☆** **♡** **☆** **♡** **☆** **♡** **☆** **♡** **☆** **♡** **☆** **♡** **☆** **♡** **☆** **♡** **☆** **♡** **☆** **♡** **☆** **♡** **☆** **♡** **☆** **♡** **☆**
 <!--
 **zcsaix/zcsaix** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
