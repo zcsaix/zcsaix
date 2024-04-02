@@ -2,7 +2,7 @@
     <img width="600" src="https://64.media.tumblr.com/20d556b75cd37b7613949588defb3807/613accc86ab754e4-78/s1280x1920/8dfdc9c345862eb3de542c1463645037c7a9b5f4.pnj">
 </p>
 <p align="center">
-    <img width="600" src="https://64.media.tumblr.com/521b1d800acc802641ed5d32d7eb9bbd/613accc86ab754e4-d7/s2048x3072/94a14ef22e346bf20523db6c4a9cdc0cbe54944a.pnj">
+    <img width="400" src="https://64.media.tumblr.com/521b1d800acc802641ed5d32d7eb9bbd/613accc86ab754e4-d7/s2048x3072/94a14ef22e346bf20523db6c4a9cdc0cbe54944a.pnj">
 </p>
 
 <p align="center">
