@@ -37,7 +37,7 @@
 </p>
 
 <p align="center">
- <img width="20" height="20" src="https://64.media.tumblr.com/41ce2f1ea1fdc31d3093e7856006c834/18e9d6dbadd2935f-65/s75x75_c1/f902788634b01b3e228c0663d7b42fe9b4bd4275.gifv">𝑮𝒓𝒂𝒑𝒉𝒊𝒄 𝒄𝒓𝒆𝒅 <a href= "[https://github.com/undeadlost]" >my friend </a> 
+ <img width="20" height="20" src="https://64.media.tumblr.com/41ce2f1ea1fdc31d3093e7856006c834/18e9d6dbadd2935f-65/s75x75_c1/f902788634b01b3e228c0663d7b42fe9b4bd4275.gifv">𝑮𝒓𝒂𝒑𝒉𝒊𝒄 𝒄𝒓𝒆𝒅 <a href= "https://github.com/undeadlost" >my friend</a>
 </p>
 
 
