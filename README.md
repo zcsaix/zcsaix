@@ -10,7 +10,7 @@
 </p>
 
 <p align="center"> 
- <img width="1000" height="70" src="https://64.media.tumblr.com/75363e71e48d7c2f7c886d6a82741e98/043056077f3d04f1-b0/s640x960/9e557ac81ce186cad35a197f5c3a628d055bc061.gifv" 
+ <img width="1000" height="60" src="https://64.media.tumblr.com/75363e71e48d7c2f7c886d6a82741e98/043056077f3d04f1-b0/s640x960/9e557ac81ce186cad35a197f5c3a628d055bc061.gifv" 
   </p>
  
 <p align="center">
@@ -18,7 +18,7 @@
                                     </p>
 
 <p align="center"> 
- <img width="1000" height="70" src="https://64.media.tumblr.com/75363e71e48d7c2f7c886d6a82741e98/043056077f3d04f1-b0/s640x960/9e557ac81ce186cad35a197f5c3a628d055bc061.gifv" 
+ <img width="1000" height="60" src="https://64.media.tumblr.com/75363e71e48d7c2f7c886d6a82741e98/043056077f3d04f1-b0/s640x960/9e557ac81ce186cad35a197f5c3a628d055bc061.gifv" 
   </p>
  
 <p align="center"> 
@@ -26,7 +26,7 @@
    𝑪+𝑯 𝒊𝒔 𝒂𝒍𝒘𝒂𝒚𝒔 𝒘𝒆𝒍𝒄𝒐𝒎𝒆 , 𝒕𝒐𝒏𝒆 𝒕𝒂𝒈𝒔 𝒂𝒓𝒆 𝒂𝒑𝒑𝒓𝒆𝒄𝒊𝒂𝒕𝒆𝒅 <img width="20" height="20" src="https://64.media.tumblr.com/bb94d844aea3e05d1ecdb5b53198d7fd/210e1160512fff23-0e/s75x75_c1/a4570937b7b0e4b831df75e676371658cc0a3cc3.gifv"
                                              </p>
   <p align="center"> 
- <img width="1000" height="70" src="https://64.media.tumblr.com/75363e71e48d7c2f7c886d6a82741e98/043056077f3d04f1-b0/s640x960/9e557ac81ce186cad35a197f5c3a628d055bc061.gifv" 
+ <img width="1000" height="60" src="https://64.media.tumblr.com/75363e71e48d7c2f7c886d6a82741e98/043056077f3d04f1-b0/s640x960/9e557ac81ce186cad35a197f5c3a628d055bc061.gifv" 
   </p>
    
    <p align="center"> 
