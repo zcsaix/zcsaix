@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="600" src="https://64.media.tumblr.com/20d556b75cd37b7613949588defb3807/613accc86ab754e4-78/s1280x1920/8dfdc9c345862eb3de542c1463645037c7a9b5f4.pnj">
+    <img width="1000" height="160" src="https://media.discordapp.net/attachments/1224772047331266610/1234678852488532059/Untitled336.png?ex=66319bc9&is=66304a49&hm=20a9793668b37a48ef54c5155efc03646208283a4be298b9007b4126a6deba86&=&format=webp&quality=lossless&width=960&height=220">
 </p>
 <p align="center">
     <img width="400" src="https://64.media.tumblr.com/521b1d800acc802641ed5d32d7eb9bbd/613accc86ab754e4-d7/s2048x3072/94a14ef22e346bf20523db6c4a9cdc0cbe54944a.pnj">
@@ -33,11 +33,11 @@
 <strong>𝘚𝘰𝘮𝘦𝘰𝘯𝘦 𝘨𝘰𝘵𝘵𝘢 𝘩𝘰𝘭𝘥 𝘮𝘺 𝘩𝘢𝘯𝘥 𝘸𝘩𝘪𝘭𝘦 𝘐 𝘮𝘢𝘬𝘦 𝘮𝘺 𝘳𝘦𝘯𝘵𝘳𝘺 𝘧𝘳.. </strong> 
                                              </p>
 <p align="center">
-    <img width="600" src="https://64.media.tumblr.com/a1116698e71455e407170d3590545a85/613accc86ab754e4-f7/s1280x1920/d50303858f8cfa42934a701240e600469544ac19.pnj">
+    <img width="1000" height="160" src="https://media.discordapp.net/attachments/1224772047331266610/1234678852739923968/Untitled336.png?ex=66319bc9&is=66304a49&hm=d81b347f27d29778d44e0f1107b17e378dd58fdbb9996a463d58b246801dc1fa&=&format=webp&quality=lossless&width=960&height=220">
 </p>
 
 <p align="center">
- <img width="20" height="20" src="https://64.media.tumblr.com/41ce2f1ea1fdc31d3093e7856006c834/18e9d6dbadd2935f-65/s75x75_c1/f902788634b01b3e228c0663d7b42fe9b4bd4275.gifv">𝑮𝒓𝒂𝒑𝒉𝒊𝒄 𝒄𝒓𝒆𝒅 <a href= "https://www.tumblr.com/cirrusism" >cirrusism </a> 
+ <img width="20" height="20" src="https://64.media.tumblr.com/41ce2f1ea1fdc31d3093e7856006c834/18e9d6dbadd2935f-65/s75x75_c1/f902788634b01b3e228c0663d7b42fe9b4bd4275.gifv">𝑮𝒓𝒂𝒑𝒉𝒊𝒄 𝒄𝒓𝒆𝒅 <a href= "[https://github.com/undeadlost]" >my friend </a> 
 </p>
 
 
