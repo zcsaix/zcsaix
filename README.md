@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
- <img width="20" height="20" src="https://64.media.tumblr.com/30b82c8fc1d26446a62b343fa4c5e236/334a52adf4ce2435-6d/s75x75_c1/a27d13b8656f644118dca39d7ae822ebdbe8c49e.gifv" [<strong> ˖ ˖ 𝓢𝓪𝓲 ˖ ˖ </strong> <img width="20" height="20" src="https://64.media.tumblr.com/fb052778389df54a364c0594cd35c9a2/334a52adf4ce2435-4e/s75x75_c1/10d1d4196e18b5a817ec6a6976298614c3c92279.gifv"
+ <img width="45" height="25" src="https://64.media.tumblr.com/f0ab32fecce2577c4e057aaca764470f/11f23c9cf57eaf6c-26/s75x75_c1/416dbf02c7c46f08796a4d63d2ebc5a6d6e32053.gifv"  [<strong> ˖ ˖ 𝓢𝓪𝓲 ˖ ˖ </strong> <img width="50" height="30" src="https://64.media.tumblr.com/02c48275396881bee3dbd60d6d523ec5/2a263a146621dab0-c2/s100x200/4fc1b3f3899923be0f4a88f07f7cb2f9ca41a365.gifv"
 </p>
 
 <p align="center"> 
@@ -22,8 +22,8 @@
   </p>
  
 <p align="center"> 
-<img width="20" height="20" src="https://64.media.tumblr.com/abdc7ab34a8deffe74576ee0b13ad298/334a52adf4ce2435-14/s75x75_c1/ff569179591b012d06c60b38b7b27bce3599f4b7.gifv">
-   𝑪+𝑯 𝒊𝒔 𝒂𝒍𝒘𝒂𝒚𝒔 𝒘𝒆𝒍𝒄𝒐𝒎𝒆 , 𝒕𝒐𝒏𝒆 𝒕𝒂𝒈𝒔 𝒂𝒓𝒆 𝒂𝒑𝒑𝒓𝒆𝒄𝒊𝒂𝒕𝒆𝒅 <img width="20" height="20" src="https://64.media.tumblr.com/ed76910750cc1a9707097c3a12d49742/334a52adf4ce2435-4c/s75x75_c1/e6e08b6e5484023de387d3f5ebe18d97c18c5102.gifv"
+<img width="20" height="20" src="https://64.media.tumblr.com/05d5c2d5eb6764f9d0f80a073ff20a91/3389feee3881de46-d7/s75x75_c1/e6ea7a152ce4de7c7a77437c195dd3d1eb727a2f.gifv">
+   𝑪+𝑯 𝒊𝒔 𝒂𝒍𝒘𝒂𝒚𝒔 𝒘𝒆𝒍𝒄𝒐𝒎𝒆 , 𝒕𝒐𝒏𝒆 𝒕𝒂𝒈𝒔 𝒂𝒓𝒆 𝒂𝒑𝒑𝒓𝒆𝒄𝒊𝒂𝒕𝒆𝒅 <img width="20" height="20" src="https://64.media.tumblr.com/bb94d844aea3e05d1ecdb5b53198d7fd/210e1160512fff23-0e/s75x75_c1/a4570937b7b0e4b831df75e676371658cc0a3cc3.gifv"
                                              </p>
   <p align="center"> 
  <img width="1000" height="70" src="https://64.media.tumblr.com/75363e71e48d7c2f7c886d6a82741e98/043056077f3d04f1-b0/s640x960/9e557ac81ce186cad35a197f5c3a628d055bc061.gifv" 
@@ -37,7 +37,7 @@
 </p>
 
 <p align="center">
- <img width="20" height="20" src="https://64.media.tumblr.com/41ce2f1ea1fdc31d3093e7856006c834/18e9d6dbadd2935f-65/s75x75_c1/f902788634b01b3e228c0663d7b42fe9b4bd4275.gifv">𝑮𝒓𝒂𝒑𝒉𝒊𝒄 𝒄𝒓𝒆𝒅 <a href= "https://github.com/undeadlost" >my friend</a>
+ <img width="45" height="40" src="https://64.media.tumblr.com/9d9876d2bf3cb67d77d49dfe8d1dbbd8/b2559018dbb6053c-44/s100x200/1ebccb27903baac930ae6f208a49d6e53cb48eb9.pnj">𝑮𝒓𝒂𝒑𝒉𝒊𝒄 𝒄𝒓𝒆𝒅 <a href= "https://github.com/undeadlost" >my friend</a> <img width="45" height="40" src="https://64.media.tumblr.com/c602abf5b6aa3468db3f2d020feecc9e/b2559018dbb6053c-ef/s100x200/67ee6fbfe8079c7c73f8d9ab1a572fd3013fd457.pnj">
 </p>
 
 
