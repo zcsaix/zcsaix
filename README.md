@@ -1,8 +1,8 @@
 <p align="center">
-    <img width="1000" height="120" src="https://media.discordapp.net/attachments/1224772047331266610/1234678852488532059/Untitled336.png?ex=66319bc9&is=66304a49&hm=20a9793668b37a48ef54c5155efc03646208283a4be298b9007b4126a6deba86&=&format=webp&quality=lossless&width=960&height=220">
+    <img width="1000" height="120" src="https://file.garden/ZjhOfU74SkXuNnGg/wrioletted1.png">
 </p>
 <p align="center">
-    <img width="600" src="https://media.discordapp.net/attachments/1224772047331266610/1234578865742020688/IMG_2484.gif?ex=66313eaa&is=662fed2a&hm=19d03ece3ad547ee37e6684330b47b667bb74faad735939fb9c1a99d3ae79212&=&width=467&height=467">
+    <img width="600" src="https://file.garden/ZjhOfU74SkXuNnGg/wriolette.gif">
 </p>
 
 <p align="center">
@@ -33,7 +33,7 @@
 <strong>𝘚𝘰𝘮𝘦𝘰𝘯𝘦 𝘨𝘰𝘵𝘵𝘢 𝘩𝘰𝘭𝘥 𝘮𝘺 𝘩𝘢𝘯𝘥 𝘸𝘩𝘪𝘭𝘦 𝘐 𝘮𝘢𝘬𝘦 𝘮𝘺 𝘳𝘦𝘯𝘵𝘳𝘺 𝘧𝘳.. </strong> 
                                              </p>
 <p align="center">
-    <img width="1000" height="120" src="https://media.discordapp.net/attachments/1224772047331266610/1234678852739923968/Untitled336.png?ex=66319bc9&is=66304a49&hm=d81b347f27d29778d44e0f1107b17e378dd58fdbb9996a463d58b246801dc1fa&=&format=webp&quality=lossless&width=960&height=220">
+    <img width="1000" height="120" src="https://file.garden/ZjhOfU74SkXuNnGg/wrioletted.png">
 </p>
 
 <p align="center">
