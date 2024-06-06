@@ -40,7 +40,7 @@
 </p>
 
 <p align="center">
- <img width="45" height="45" src="https://64.media.tumblr.com/ad7274c0f29b719f85f51012e0d9b138/3b9e634ed41947e0-fe/s250x400/f95a5b2702a59f449e970e82bc07863d5d74f0d2.gifv">Graphic cred <a href= "https://www.tumblr.com/dollrelicz" >@dollrelicz</a> , Divider cred <a href= "https://www.tumblr.com/virtualdancer" >@virtualdancer</a> <img width="45" height="45" src="https://64.media.tumblr.com/63b48a42030a6a64a7706fcf823e60d0/3b9e634ed41947e0-de/s250x400/11b2218dde48c50a3952e2d6d344553736024216.gifv">
+ <img width="55" height="45" src="https://64.media.tumblr.com/ad7274c0f29b719f85f51012e0d9b138/3b9e634ed41947e0-fe/s250x400/f95a5b2702a59f449e970e82bc07863d5d74f0d2.gifv">Graphic cred <a href= "https://www.tumblr.com/dollrelicz" >@dollrelicz</a> , Divider cred <a href= "https://www.tumblr.com/virtualdancer" >@virtualdancer</a> <img width="55" height="45" src="https://64.media.tumblr.com/63b48a42030a6a64a7706fcf823e60d0/3b9e634ed41947e0-de/s250x400/11b2218dde48c50a3952e2d6d344553736024216.gifv">
 </p>
 
 
