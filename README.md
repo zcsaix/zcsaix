@@ -1,12 +1,12 @@
 <p align="center">
-    <img width="1000" height="120" src="https://file.garden/ZjhOfU74SkXuNnGg/wrioletted1.png">
+    <img width="700" height="200" src="https://64.media.tumblr.com/5f0037ee2a7add3640b6888e11f11f48/a4913a12e4e6c6d7-e0/s2048x3072/164b4f2dceb2f68b407dca7b1b2c5bf02274b529.pnj">
 </p>
 <p align="center">
-    <img width="600" src="https://file.garden/ZjhOfU74SkXuNnGg/wriolette.gif">
+    <img width="500" src="https://64.media.tumblr.com/f29eb95129ee0a210e7e5705ff28d937/1c6acaf7e1d2cd4e-01/s1280x1920/4dd0dafd6da72a6a20d888c45cbc1cbbc507d8e2.pnj">
 </p>
 
 <p align="center">
- <img width="45" height="25" src="https://64.media.tumblr.com/f0ab32fecce2577c4e057aaca764470f/11f23c9cf57eaf6c-26/s75x75_c1/416dbf02c7c46f08796a4d63d2ebc5a6d6e32053.gifv"  [<strong> ˖ ˖ 𝓢𝓪𝓲 ˖ ˖ </strong> <img width="50" height="30" src="https://64.media.tumblr.com/02c48275396881bee3dbd60d6d523ec5/2a263a146621dab0-c2/s100x200/4fc1b3f3899923be0f4a88f07f7cb2f9ca41a365.gifv"
+ <img width="35" height="35" src="https://64.media.tumblr.com/bc1768aa88163d098d215ad565ed158c/89b42b2e652de499-0e/s250x400/455dc0286dc808d57c17f14cb0509ccff9484825.gifv"  [<strong> ˖ ˖ Sai ˖ ˖ </strong> <img width="35" height="35" src="https://64.media.tumblr.com/eda069be3907dc555541f25687c45496/048efe2750086af4-ed/s250x400/ba81160f877effd5ac19a261065d9c7870bf05ee.gifv"
 </p>
 
 <p align="center"> 
@@ -14,7 +14,7 @@
   </p>
  
 <p align="center">
-  <img width="20" height="20" src="https://64.media.tumblr.com/85951298798d62d51e839de2b8cf88d8/a90b3577a3e0f9a6-96/s75x75_c1/bf4b99e022f20fc304abf7751d2e090b83799048.gifv"> <strong> 𝟸𝟶𝟶𝟼 , </strong> 𝑽𝒊𝒆𝒕 , 𝒂𝒏𝒚 𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔 <strong> , </strong> <img width="30" height="20" src="https://64.media.tumblr.com/8fb984d92424f2bb0b28a4333ec7e1c8/554e37fffe3e1e13-67/s75x75_c1/ec29b602b1c0f68d22b7ca850981c794879c356c.gifv"
+  <img width="35" height="35" src="https://64.media.tumblr.com/3f8947e5380eda5234b1b5580130e1ff/9c6e8ed21ee96b20-66/s75x75_c1/59dd3867237c4f9fc2bb061a617b1cbbf26f613a.gifv"> ˖ 2006 ˖ </strong> Viet ˖ any pronouns <strong> ˖ </strong> <img width="40" height="40" src="https://64.media.tumblr.com/fa8a56054c1fb9e3d7d0ab68ccf5054e/9c6e8ed21ee96b20-be/s250x400/cad4ce1cdb42df2abf20dc3314e43101068354f2.gifv"
                                     </p>
 
 <p align="center"> 
@@ -22,22 +22,22 @@
   </p>
  
 <p align="center"> 
-<img width="20" height="20" src="https://64.media.tumblr.com/05d5c2d5eb6764f9d0f80a073ff20a91/3389feee3881de46-d7/s75x75_c1/e6ea7a152ce4de7c7a77437c195dd3d1eb727a2f.gifv">
-   𝑪+𝑯 𝒊𝒔 𝒂𝒍𝒘𝒂𝒚𝒔 𝒘𝒆𝒍𝒄𝒐𝒎𝒆 , 𝒕𝒐𝒏𝒆 𝒕𝒂𝒈𝒔 𝒂𝒓𝒆 𝒂𝒑𝒑𝒓𝒆𝒄𝒊𝒂𝒕𝒆𝒅 <img width="20" height="20" src="https://64.media.tumblr.com/bb94d844aea3e05d1ecdb5b53198d7fd/210e1160512fff23-0e/s75x75_c1/a4570937b7b0e4b831df75e676371658cc0a3cc3.gifv"
+<img width="35" height="35" src="https://64.media.tumblr.com/352456d903e816676ae0ef604e7bddfc/852da2147056155f-cf/s75x75_c1/f4157cf922f409b6efce077b49d9a8f1f1e7f75a.gifv">
+   C + H is always welcome, tone tags are appreciated <img width="35" height="35" src="https://64.media.tumblr.com/0f48ea3aa62435ad50abc618d62db90e/f2abe0b0a4838764-b0/s250x400/d2659413dfabf05bb98cae50b41643a854a8edbb.pnj"
                                              </p>
   <p align="center"> 
  <img width="1000" height="60" src="https://64.media.tumblr.com/75363e71e48d7c2f7c886d6a82741e98/043056077f3d04f1-b0/s640x960/9e557ac81ce186cad35a197f5c3a628d055bc061.gifv" 
   </p>
    
    <p align="center"> 
-<strong>𝘚𝘰𝘮𝘦𝘰𝘯𝘦 𝘨𝘰𝘵𝘵𝘢 𝘩𝘰𝘭𝘥 𝘮𝘺 𝘩𝘢𝘯𝘥 𝘸𝘩𝘪𝘭𝘦 𝘐 𝘮𝘢𝘬𝘦 𝘮𝘺 𝘳𝘦𝘯𝘵𝘳𝘺 𝘧𝘳.. </strong> 
-                                             </p>
+ <img width="45" height="45" src="https://64.media.tumblr.com/909d3a082a1c44b81fae8e9badf77cc0/f2abe0b0a4838764-3e/s250x400/d3ad5f659b12805666e57ee05ab90b044dd87f2d.gifv">  <img width="45" height="45" src="https://64.media.tumblr.com/241cbb79939f8ec15aa3ee99a8495af7/9c6e8ed21ee96b20-9a/s250x400/c0193aa61da6a69d2e253720bf2428ae37684d1c.gifv"> <img width="45" height="45" src="https://64.media.tumblr.com/a48a93249781d276e346984ec95e2e2b/852da2147056155f-81/s250x400/0e1eddcdde74747dc76e2654779d74250a790d16.gifv"> <img width="45" height="45" src="https://64.media.tumblr.com/d1fdee56d625b826b64a959f64c95b2d/9c6e8ed21ee96b20-f5/s250x400/8665de62551c2cec9b827b73746b73c391b89b29.gifv"> <img width="45" height="45" src="https://64.media.tumblr.com/5bda53f03733d52d9e2fb3e2000eb7c9/9c6e8ed21ee96b20-01/s250x400/a3be65d7b15f33916bc2585a79905c584b89dafb.gifv">
+                                             </p> 
 <p align="center">
-    <img width="1000" height="120" src="https://file.garden/ZjhOfU74SkXuNnGg/wrioletted.png">
+    <img width="700" height="200" src="https://64.media.tumblr.com/5f0037ee2a7add3640b6888e11f11f48/a4913a12e4e6c6d7-e0/s2048x3072/164b4f2dceb2f68b407dca7b1b2c5bf02274b529.pnj">
 </p>
 
 <p align="center">
- <img width="45" height="40" src="https://64.media.tumblr.com/9d9876d2bf3cb67d77d49dfe8d1dbbd8/b2559018dbb6053c-44/s100x200/1ebccb27903baac930ae6f208a49d6e53cb48eb9.pnj">𝑮𝒓𝒂𝒑𝒉𝒊𝒄 𝒄𝒓𝒆𝒅 <a href= "https://github.com/undeadlost" >my friend</a> <img width="45" height="40" src="https://64.media.tumblr.com/c602abf5b6aa3468db3f2d020feecc9e/b2559018dbb6053c-ef/s100x200/67ee6fbfe8079c7c73f8d9ab1a572fd3013fd457.pnj">
+ <img width="45" height="45" src="https://64.media.tumblr.com/ad7274c0f29b719f85f51012e0d9b138/3b9e634ed41947e0-fe/s250x400/f95a5b2702a59f449e970e82bc07863d5d74f0d2.gifv">Graphic cred <a href= "https://www.tumblr.com/dollrelicz" >@dollrelicz</a> , Divider cred <a href= "https://www.tumblr.com/virtualdancer" >@virtualdancer</a> <img width="45" height="45" src="https://64.media.tumblr.com/63b48a42030a6a64a7706fcf823e60d0/3b9e634ed41947e0-de/s250x400/11b2218dde48c50a3952e2d6d344553736024216.gifv">
 </p>
 
 
