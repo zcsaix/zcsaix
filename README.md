@@ -1,12 +1,10 @@
 <p align="center">
-    <img width="700" height="200" src="https://64.media.tumblr.com/5f0037ee2a7add3640b6888e11f11f48/a4913a12e4e6c6d7-e0/s2048x3072/164b4f2dceb2f68b407dca7b1b2c5bf02274b529.pnj">
-</p>
-<p align="center">
     <img width="350" src="https://64.media.tumblr.com/f29eb95129ee0a210e7e5705ff28d937/1c6acaf7e1d2cd4e-01/s1280x1920/4dd0dafd6da72a6a20d888c45cbc1cbbc507d8e2.pnj">
 </p>
-<p align="center"> 
- <img width="1000" height="60" src="https://64.media.tumblr.com/75363e71e48d7c2f7c886d6a82741e98/043056077f3d04f1-b0/s640x960/9e557ac81ce186cad35a197f5c3a628d055bc061.gifv" 
-  </p>
+<p align="center">
+    <img width="700" height="200" src="https://64.media.tumblr.com/5f0037ee2a7add3640b6888e11f11f48/a4913a12e4e6c6d7-e0/s2048x3072/164b4f2dceb2f68b407dca7b1b2c5bf02274b529.pnj">
+</p>
+
 <p align="center">
  <img width="35" height="35" src="https://64.media.tumblr.com/bc1768aa88163d098d215ad565ed158c/89b42b2e652de499-0e/s250x400/455dc0286dc808d57c17f14cb0509ccff9484825.gifv"  [<strong> ˖ ˖ Sai ˖ ˖ </strong> <img width="35" height="35" src="https://64.media.tumblr.com/eda069be3907dc555541f25687c45496/048efe2750086af4-ed/s250x400/ba81160f877effd5ac19a261065d9c7870bf05ee.gifv"
 </p>
