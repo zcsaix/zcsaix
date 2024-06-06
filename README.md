@@ -1,11 +1,11 @@
 <p align="center">
-    <img width="700" height="200" src="https://64.media.tumblr.com/5f0037ee2a7add3640b6888e11f11f48/a4913a12e4e6c6d7-e0/s2048x3072/164b4f2dceb2f68b407dca7b1b2c5bf02274b529.pnj">
+    <img width="700" height="100" src="https://64.media.tumblr.com/92bafc54f2a7fb937c8812eb96e2973b/df27dd0929edfaa2-71/s1280x1920/8c35afc69b0e11f8f6cf50cf680c9471c8591357.pnj">
 </p>
 <p align="center">
-    <img width="350" src="https://64.media.tumblr.com/f29eb95129ee0a210e7e5705ff28d937/1c6acaf7e1d2cd4e-01/s1280x1920/4dd0dafd6da72a6a20d888c45cbc1cbbc507d8e2.pnj">
+    <img width="350" src="https://i.pinimg.com/originals/2d/5c/c5/2d5cc5cd61e9dbb63cd47d16ce039509.gif">
 </p>
 <p align="center">
-    <img width="700" height="200" src="https://64.media.tumblr.com/5f0037ee2a7add3640b6888e11f11f48/a4913a12e4e6c6d7-e0/s2048x3072/164b4f2dceb2f68b407dca7b1b2c5bf02274b529.pnj">
+    <img width="400" height="50" src="https://64.media.tumblr.com/cc0f98b6d847f3ccb11d5ca97830074e/b07ae8856b714bb5-48/s250x400/e24441847fa8a2afce65555f55e068217669d664.gifv">
 </p>
 
 <p align="center">
@@ -36,11 +36,11 @@
  <img width="45" height="45" src="https://64.media.tumblr.com/909d3a082a1c44b81fae8e9badf77cc0/f2abe0b0a4838764-3e/s250x400/d3ad5f659b12805666e57ee05ab90b044dd87f2d.gifv">  <img width="45" height="45" src="https://64.media.tumblr.com/241cbb79939f8ec15aa3ee99a8495af7/9c6e8ed21ee96b20-9a/s250x400/c0193aa61da6a69d2e253720bf2428ae37684d1c.gifv"> <img width="45" height="45" src="https://64.media.tumblr.com/a48a93249781d276e346984ec95e2e2b/852da2147056155f-81/s250x400/0e1eddcdde74747dc76e2654779d74250a790d16.gifv"> <img width="45" height="45" src="https://64.media.tumblr.com/d1fdee56d625b826b64a959f64c95b2d/9c6e8ed21ee96b20-f5/s250x400/8665de62551c2cec9b827b73746b73c391b89b29.gifv"> <img width="45" height="45" src="https://64.media.tumblr.com/5bda53f03733d52d9e2fb3e2000eb7c9/9c6e8ed21ee96b20-01/s250x400/a3be65d7b15f33916bc2585a79905c584b89dafb.gifv">
                                              </p> 
 <p align="center">
-    <img width="700" height="200" src="https://64.media.tumblr.com/5f0037ee2a7add3640b6888e11f11f48/a4913a12e4e6c6d7-e0/s2048x3072/164b4f2dceb2f68b407dca7b1b2c5bf02274b529.pnj">
+    <img width="700" height="100" src="https://64.media.tumblr.com/1d06d877684228ded28175b0d2aeb64e/df27dd0929edfaa2-7a/s1280x1920/d541a761f6260d0801e7b057d8fe3c2a0993a457.pnj">
 </p>
 
 <p align="center">
- <img width="55" height="45" src="https://64.media.tumblr.com/ad7274c0f29b719f85f51012e0d9b138/3b9e634ed41947e0-fe/s250x400/f95a5b2702a59f449e970e82bc07863d5d74f0d2.gifv">Graphic cred <a href= "https://www.tumblr.com/dollrelicz" >@dollrelicz</a> , Divider cred <a href= "https://www.tumblr.com/virtualdancer" >@virtualdancer</a> <img width="55" height="45" src="https://64.media.tumblr.com/63b48a42030a6a64a7706fcf823e60d0/3b9e634ed41947e0-de/s250x400/11b2218dde48c50a3952e2d6d344553736024216.gifv">
+ <img width="55" height="45" src="https://64.media.tumblr.com/ad7274c0f29b719f85f51012e0d9b138/3b9e634ed41947e0-fe/s250x400/f95a5b2702a59f449e970e82bc07863d5d74f0d2.gifv">Graphic cred <a href= "https://www.tumblr.com/dollrelicz" >@dollrelicz</a> , Divider cred <a href= "https://www.tumblr.com/virtualdancer" >@virtualdancer</a> <a href= "https://www.tumblr.com/ioveartfilm" >@ioveartfilm</a> <img width="55" height="45" src="https://64.media.tumblr.com/63b48a42030a6a64a7706fcf823e60d0/3b9e634ed41947e0-de/s250x400/11b2218dde48c50a3952e2d6d344553736024216.gifv">
 </p>
 
 
